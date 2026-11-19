@@ -205,3 +205,24 @@ God prepared humanity for the Eucharist through salvation history:
 - [ ] Arrive early and pray.
 - [ ] During delays, bring petitions and offer yourself to God.
 - [ ] Stay through the final blessing and dismissal.
+
+Based on the talk, these are the key parts of the Mass that are most often misunderstood, with the correction the speaker gives:
+
+| Misunderstood part | Common misconception | Correct understanding |
+|---|---|---|
+| **“Source and summit”** | The Incarnation, Sermon on the Mount, Passion, or Resurrection should be the summit. | The Eucharist is the source and summit because Jesus is truly present—body, blood, soul, and divinity—and gives himself substantially to us. (1:23–4:24) |
+| **Real Presence / transubstantiation** | Jesus becomes *physically* present on the altar. | Jesus remains in heaven; the change is **substantial**, not physical. The bread and wine become his body, blood, soul, and divinity while still appearing as bread and wine. (17:34–21:49; 50:07–51:30) |
+| **“Attending” Mass** | We go to Mass as an audience to be entertained, educated, or edified. | We are **active participants** and **kingdom priests**. Mass is primarily worship offered to God, not a performance for us. (26:10–28:44) |
+| **Liturgy** | Liturgy is just the church’s routine or ceremony. | *Liturgy* means “work of the people”; we go to Mass to do our work of worship and self-offering. (27:46–28:03) |
+| **Intentional delays** | Delays—procession, bringing the Roman Missal, collection, preparing Communion—are inefficient. | They are deliberate opportunities: bring petitions to mind, offer yourself with Jesus, prepare for Communion, and pray after Communion. (39:59–41:35; 46:46–48:47; 58:38–59:26) |
+| **Number of readings** | There are three readings at Mass. | There are **five**: first reading, responsorial psalm, second reading, Alleluia verse, and Gospel. (41:42–43:10) |
+| **Homily** | The priest can speak on any topic he wants. | The homily is an **explanation** and must be tied to the readings of the day. (43:50–44:37) |
+| **“Amen” after the Creed** | It is just a routine ending word. | *Amen* means “I believe.” Saying it is a proclamation of faith. (45:18–45:48) |
+| **Sign of Peace** | It is just a friendly greeting or “hello.” | It is a symbolic act of **forgiveness**, reenacting Jesus’ Easter “Peace be with you” and showing God we forgive others. (55:48–57:35) |
+| **“Do this in remembrance of me”** | It is only a memorial or reenactment of a past event. | “Remembrance” means **entering into the actual event**—Christ’s passion, death, and resurrection—not merely recalling it. (16:25–17:34) |
+| **Communion** | We take food and change it into ourselves. | In Communion, **we are changed** to become more like Christ; we receive healing, strength, transformation, and unification. (59:19–59:58) |
+| **Restricting Communion to Catholics** | It is exclusionary or unkind. | It is an act of love: receiving without belief in the Real Presence or full communion with the Church would be harmful. (1:05:48–1:06:58) |
+| **Leaving after Communion** | The Mass is essentially over after receiving Communion. | Leaving early misses the final blessing and dismissal; “Mass” comes from *missa*, “go forth” to live and share the Gospel. (1:01:21–1:02:35) |
+| **“Liturgy wars”** | One form/rite of the Mass is essentially better than another. | The core elements are the same across rites and have not changed in 2,000 years; different rites may meet different spiritual needs. (1:02:35–1:05:48) |
+
+The speaker’s central correction is that **the Mass is not mainly about what we get out of it; it is about worshipping God, offering ourselves with Christ, and encountering him—especially in the Real Presence.**
