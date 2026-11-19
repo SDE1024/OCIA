@@ -195,18 +195,6 @@ God prepared humanity for the Eucharist through salvation history:
 
 ---
 
-Checklist
-
-1. **Be reconciled with others before Mass** — if someone has something against you, leave your gift and be reconciled first (Matt 23:24). (29:15–29:48)
-2. **Be in a worthy state** — free of mortal sin; use the sacrament of confession. (29:58–30:15)
-3. **Believe what the Church teaches**, especially **the Real Presence**. (30:15–30:22)
-4. **Read and meditate on the readings before Mass** — ideally as a family, the night before or before Mass. (30:22–30:39)
-5. **Know your Mass intentions** — what you are offering, asking God for, and how to align your will with his. (30:48–31:04)
-6. **Cultivate a prayerful state**. (31:04)
-7. **Fast one hour before receiving Communion**. (31:04–31:22)
-8. **Dress reverently** — put on your “best” to meet God the King. (31:22–32:09)
-9. **Arrive early** — so you are not rushing and can enter a prayerful state. (32:09–32:37)
-
 He also mentioned three handouts: the **Order of the Mass**, **What’s in Church**, and the **priest’s silent prayers**. (32:37–34:51)
 
 Based on the talk, these are the key parts of the Mass that are most often misunderstood, with the correction the speaker gives:
