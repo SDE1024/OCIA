@@ -197,6 +197,8 @@ God prepared humanity for the Eucharist through salvation history:
 
 He also mentioned three handouts: the **Order of the Mass**, **What’s in Church**, and the **priest’s silent prayers**. (32:37–34:51)
 
+---
+
 Based on the talk, these are the key parts of the Mass that are most often misunderstood, with the correction the speaker gives:
 
 | Misunderstood part | Common misconception | Correct understanding |
